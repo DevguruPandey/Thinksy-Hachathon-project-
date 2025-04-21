@@ -86,12 +86,4 @@ Thinksy is a safe space where creators **collide, connect, and create** 🎉
 
 ---
 
-## 📬 Get Involved
-
-Want to contribute, collab or support?  
-Drop us a DM or send us love 💌 → `team@thinksy.dev`  
-Follow our journey: [🐦 Twitter](https://twitter.com/) | [💼 LinkedIn](https://linkedin.com/)
-
----
-
 > 🧠 “**Fuse Skills. Build Together. Level Up.**” 🚀
